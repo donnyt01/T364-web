@@ -1,0 +1,1 @@
+For our June Campout we will be going to Hemeric Island for our annual watersports/canoeing trip.  We have lots of fun on this campout every year and we get to have so much fun with the boats and wakeboards. 
