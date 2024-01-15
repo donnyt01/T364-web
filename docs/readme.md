@@ -15,3 +15,5 @@ Bayside Presbyterian
 
 [Three Ridges Hike](./campouts/three-ridges.md)
 
+[Hemeric Outing](./campouts/hemeric-boating-trip.md)
+
