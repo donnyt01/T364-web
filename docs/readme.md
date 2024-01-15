@@ -10,3 +10,5 @@ Bayside Presbyterian
 [Merchants-Mill-Pond](./campouts/merchants-mill-pond.md)
 
 [Dutch Oven Cookoff](./campouts/dutch-oven-cookoff.md)
+
+[Old Rag Hike](./camputs/old-rag.md)
