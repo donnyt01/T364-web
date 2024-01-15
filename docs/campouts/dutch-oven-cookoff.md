@@ -1,0 +1,1 @@
+For our march outing we will be going to our annual Dutch Oven Cookoff where we compete against other patrols to impress the adults with our cooking using a dutch oven. We try to have the best meals and get bragging rights to use aginst the other patrols.
