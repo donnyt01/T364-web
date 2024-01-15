@@ -11,4 +11,7 @@ Bayside Presbyterian
 
 [Dutch Oven Cookoff](./campouts/dutch-oven-cookoff.md)
 
-[Old Rag Hike](./camputs/old-rag.md)
+[Old Rag Hike](./campouts/old-rag.md)
+
+[Three Ridges Hike](./campouts/three-ridges.md)
+
