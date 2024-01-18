@@ -19,3 +19,4 @@ Bayside Presbyterian
 
 [Summer Camp](./campouts/summer-camp-24.md)
 
+[Lock-In](./campouts./campouts/lock-in.md)
