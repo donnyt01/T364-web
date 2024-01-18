@@ -17,3 +17,5 @@ Bayside Presbyterian
 
 [Hemeric Outing](./campouts/hemeric-boating-trip.md)
 
+[Summer Camp](./campouts/summer-camp-24.md)
+
