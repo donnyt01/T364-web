@@ -1,0 +1,1 @@
+For our annual october outing where we go to Wakefield to learn how to shoot and have so much fun the entire weekend and shoot guns and then have fun shooting at targets adter we learn how to shoot many different calibers, and other things such as bows and other rifles.
