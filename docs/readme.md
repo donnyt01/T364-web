@@ -23,5 +23,6 @@ Bayside Presbyterian
 
 [Wakefield Shooting](./campouts./wakefield-shooting-outing.md)
 
-[Albermarle](./campouts.albermarle-merit-badge-weekend.md)
+[Albermarle](./campouts./albermarle-merit-badge-weekend.md)
 
+[Honallee](./campouts./honalee.md)
