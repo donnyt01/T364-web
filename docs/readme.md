@@ -26,3 +26,6 @@ Bayside Presbyterian
 [Albermarle](./campouts./albermarle-merit-badge-weekend.md)
 
 [Honallee](./campouts./honalee.md)
+
+Our key dates can be added to your calendar by adding "baysidetroop364@gmail.com" to your google calendar.
+
