@@ -1,0 +1,1 @@
+We will be going on our annual trip to honalee scout reserve in december. On this campout we will prepare for the klondike derby that we go to almost every year. This campout is so much fun and it helps prepare us for the future challenges of scouting as well as just being an enjoyable campout.
