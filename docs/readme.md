@@ -22,3 +22,6 @@ Bayside Presbyterian
 [Lock-In](./campouts./lock-in.md)
 
 [Wakefield Shooting](./campouts./wakefield-shooting-outing.md)
+
+[Albermarle](./campouts.albermarle-merit-badge-weekend.md)\
+
