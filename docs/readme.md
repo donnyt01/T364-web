@@ -19,13 +19,13 @@ Bayside Presbyterian
 
 [Summer Camp](./campouts/summer-camp-24.md)
 
-[Lock-In](./campouts./lock-in.md)
+[Lock-In](./campouts/lock-in.md)
 
-[Wakefield Shooting](./campouts./wakefield-shooting-outing.md)
+[Wakefield Shooting](./campouts/wakefield-shooting-outing.md)
 
-[Albermarle](./campouts./albermarle-merit-badge-weekend.md)
+[Albermarle](./campouts/albermarle-merit-badge-weekend.md)
 
-[Honallee](./campouts./honalee.md)
+[Honallee](./campouts/honalee.md)
 
 Our key dates can be added to your calendar by adding "baysidetroop364@gmail.com" to your google calendar.
 
