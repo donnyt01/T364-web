@@ -1,10 +1,12 @@
 # Welcome
-Welcome to Troop 364
+Welcome to Troop 364 of Virginia Beach Virginia.
+
 Troop 364 was established in 1968 to help young men develop and learn outdoor, leadership, and survival skills that can be used to help scouts succeed in everyday life. We establish skills that may not be learned elsewhere in a boy run boy lead setting.
 ## Schedule
 We meet every Wednesday at 7:00pm 
 Bayside Presbyterian 
 1400 Ewell Rd, Virginia Beach, VA 23455
+
 ###Events
 [Winter-Camp](./campouts/winter-camp.md)
 
@@ -30,4 +32,22 @@ Bayside Presbyterian
 
 Our key dates can be added to your calendar by adding "baysidetroop364@gmail.com" to your google calendar.
 
+Follow us on Facebook to learn more about what we do and learn more about us at "https://www.facebook.com/groups/troop364vb/".
+![image](https://github.com/Troop-364/T364-web/assets/147009007/0c154f41-9252-456f-807d-e3625d26d45f)
 
+
+
+
+Scout Oath:                                                          Scout Law:
+On my honor I will do my best                                        Trustworthy
+to do my duty to God and my country                                  Loyal
+and to obey the Scout Law;                                           Helpful
+to help other people at all times;                                   Friendly  
+to keep myself physically strong,                                    Courteous 
+mentally awake, and morally straight.                                Kind
+                                                                     Obedient
+                                                                     Cheerful
+                                                                     Thrify
+                                                                     Brave
+                                                                     Clean
+                                                                     Reverent
