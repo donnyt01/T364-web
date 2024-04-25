@@ -1,5 +1,5 @@
 # Welcome
-Welcome to Troop 364 of Virginia Beach Virginia.
+Welcome to Troop 364 of Virginia Beach Virginia, located in the TideWater Council.
 
 Troop 364 was established in 1968 to help young men develop and learn outdoor, leadership, and survival skills that can be used to help scouts succeed in everyday life. We establish skills that may not be learned elsewhere in a boy run boy lead setting.
 ## Schedule
@@ -8,6 +8,7 @@ Bayside Presbyterian
 1400 Ewell Rd, Virginia Beach, VA 23455
 
 ###Events
+
 [Winter-Camp](./campouts/winter-camp.md)
 
 [Merchants-Mill-Pond](./campouts/merchants-mill-pond.md)
