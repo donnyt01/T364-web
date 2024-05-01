@@ -38,16 +38,44 @@ Follow us on Facebook to learn more about what we do and learn more about us at 
 
 
 
-Scout Oath:                                                          Scout Law:
-On my honor I will do my best                                        Trustworthy
-to do my duty to God and my country                                  Loyal
-and to obey the Scout Law;                                           Helpful
-to help other people at all times;                                   Friendly  
-to keep myself physically strong,                                    Courteous 
-mentally awake, and morally straight.                                Kind
-                                                                     Obedient
-                                                                     Cheerful
-                                                                     Thrify
-                                                                     Brave
-                                                                     Clean
-                                                                     Reverent
+Scout Oath:  
+
+
+On my honor I will do my best
+
+to do my duty to God and my country
+
+and to obey the Scout Law;
+
+to help other people at all times;
+
+to keep myself physically strong,
+
+mentally awake, and morally straight.
+
+
+Scout Law: 
+
+Trustworthy
+
+Loyal
+
+Helpful
+
+Friendly
+
+Courteous
+
+Kind
+
+Obedient
+
+Cheerful 
+
+Thrifty
+
+Brave
+
+Clean
+
+Reverent
