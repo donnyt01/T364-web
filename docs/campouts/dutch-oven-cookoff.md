@@ -1,1 +1,1 @@
-For our March outing, we went to Chipoakes state park and had our annual dutch oven cookoff. We had alot of fun learning to cook with dutch ovens outside and we had the adults judge our dishes to see who the winner in each category was.
+For our March outing, we went to Chipoakes State Park and had our annual dutch oven cookoff. We had alot of fun learning to cook with dutch ovens outside and we had the adults judge our dishes to see who the winner in each category was.
