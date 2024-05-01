@@ -1,1 +1,1 @@
-For our march outing we will be going to our annual Dutch Oven Cookoff where we compete against other patrols to impress the adults with our cooking using a dutch oven. We try to have the best meals and get bragging rights to use aginst the other patrols.
+For our March outing, we went to Chipoakes state park and had our annual dutch oven cookoff. We had alot of fun learning to cook with dutch ovens outside and we had the adults judge our dishes to see who the winner in each category was.
