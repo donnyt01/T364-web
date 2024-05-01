@@ -1,1 +1,1 @@
-In novermber we will be going to our annual merit badge weekend at the coast guard base where we will spend the time earning merit badges and at night even watching a movie. We will have fun all weekend are come back even more prepared for scouting than we were before.
+In November we will be going to our annual merit badge weekend at the coast guard base where we will spend the time earning merit badges and at night even watching a movie. We will have fun all weekend are come back even more prepared for scouting than we were before.
