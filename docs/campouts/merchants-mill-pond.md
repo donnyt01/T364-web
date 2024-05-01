@@ -1,1 +1,1 @@
-Our February outing is going to be a practice hike for our Three Ridges Hiking trip which is around 15 miles. We will have fun at Merchants Mill Pond hiking around for the weekend.
+Our February outing we went on a 5 mile hike at Merchants Mill Pond to prepare for our three ridges backpacking trip in may. We had lots of fun on this hike and we learned what we should and should not bring on the longer hike.
