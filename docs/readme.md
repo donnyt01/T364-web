@@ -1,4 +1,5 @@
 ![image](https://github.com/Troop-364/T364-web/assets/147009007/7caf58d3-bd0e-47ce-ae97-1fe9d3a70bc1)
+![image](https://github.com/Troop-364/T364-web/assets/147009007/526457cd-75db-46b1-a9f2-abfbc3c209e4)
 
 # Welcome
 Welcome to Troop 364 of Virginia Beach Virginia, located in the Tidewater Council.
