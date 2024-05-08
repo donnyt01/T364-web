@@ -1,4 +1,4 @@
-                     ![image](https://github.com/Troop-364/T364-web/assets/147009007/6f2c8eb4-e32a-4b68-a2a7-05ec42e8e617)
+![image](https://github.com/Troop-364/T364-web/assets/147009007/6f2c8eb4-e32a-4b68-a2a7-05ec42e8e617)
 
 
 # Welcome
